@@ -1,4 +1,5 @@
 [![noswpatv3](http://zoobab.wdfiles.com/local--files/start/noupcv3.jpg)](https://ffii.org/donate-now-to-save-europe-from-software-patents-says-ffii/)
+[![noswpatv3](http://zoobab.wdfiles.com/local--files/start/noupcv3.jpg)](https://ffii.org/donate-now-to-save-europe-from-software-patents-says-ffii/)
 # Microsoft Workers for Climate Justice
 
 Yesterday, a major collaboration between Microsoft, Chevron and Schlumberger, an oilfield services company, was [announced](https://news.microsoft.com/2019/09/17/schlumberger-chevron-and-microsoft-announce-collaboration-to-accelerate-digital-transformation/). This partnership outlines Microsoft's use of ["a cloud-based artificial intelligence platform to improve digital services in the oil field.”](https://www.chron.com/business/energy/article/Schlumberger-Chevron-and-Microsoft-launch-14445539.php) With this kind of news making headlines just 3 days before the Global Climate Strike, it's no longer possible for us to ignore Microsoft's complicity in the climate crisis. 
